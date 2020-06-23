@@ -7,3 +7,9 @@ Ehrgeizig und Verfechter des life-long Learning.
 * zielstrebig
 * willenstark
 * eigensinnig
+
+
+
+
+> Habe Mut,
+> dich deines eigenen Verstandes zu bedienen
